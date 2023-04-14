@@ -1,1 +1,1 @@
-alternado !
+alterando !
